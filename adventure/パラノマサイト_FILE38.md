@@ -29,6 +29,8 @@
 > ◆複数のキャラクター達が直面する、それぞれの謎  
 > ◆あなた自身の手で探し出す、真実の結末  
 
+![公式画像](https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/2701440/70cf34e77e09a81fa940861f976ebcd2adc175ce/header_japanese.jpg?t=1770308292)
+
 ## プレイ感想など
 
 - 前作 [パラノマサイト FILE23 本所七不思議](https://store.steampowered.com/app/2106840/_FILE23/) がよかったので即買い．
