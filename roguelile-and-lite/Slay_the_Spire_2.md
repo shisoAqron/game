@@ -23,3 +23,6 @@
 - これでもﾜﾝﾁｬﾝ負ける要素ある（アセンションなし・初見3層ボス直前）
 
 <blockquote class="twitter-tweet"><p lang="ja" dir="ltr">これで負けたら木の下に埋めてもらってもかまわないよ！の気持ちで行ったら3層ボスでスキルメタられかけたやつ <a href="https://t.co/9gM6Rd1QQk">pic.twitter.com/9gM6Rd1QQk</a></p>&mdash; shiso🍅 (@frogshiso) <a href="https://twitter.com/frogshiso/status/2033161533182869972?ref_src=twsrc%5Etfw">March 15, 2026</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+- アセンションなしで全員1周できたのでまずは安心して寝られる
+- シナジーあるいはループ組めるとやはり脳汁出る．ヘルレイザー＆ポンストはお手軽で楽しい（トゲには気をつけよう）
